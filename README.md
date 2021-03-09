@@ -1,1 +1,0 @@
-# Akhbar-sharq
